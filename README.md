@@ -1,1 +1,0 @@
-# MesaNet-Portal-BugForge-Weekly-Challenge1
